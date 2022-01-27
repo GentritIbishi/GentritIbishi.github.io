@@ -1,1 +1,0 @@
-# GentritIbishi.github.io
